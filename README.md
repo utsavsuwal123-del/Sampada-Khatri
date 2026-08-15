@@ -1,2 +1,2 @@
-# Sampada-Khatri
-This is my github 1st account
+# To:Sampada-Khatri
+“A Sincere Apology From Me” ❤️
